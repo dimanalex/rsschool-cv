@@ -1,5 +1,5 @@
 # Smirnov Dmitrii 
-![Это опциональный alt-текст](https://sun9-3.userapi.com/impg/LLfkpBpzMCv2JxOg0G1Ke1dk6KctQKxJU9jaeg/24Nf43IjPJ4.jpg?size=960x1138&quality=95&sign=baa7807366ce262afe088a2118eebfb7&type=album)
+![](https://sun9-3.userapi.com/impg/LLfkpBpzMCv2JxOg0G1Ke1dk6KctQKxJU9jaeg/24Nf43IjPJ4.jpg?size=960x1138&quality=95&sign=baa7807366ce262afe088a2118eebfb7&type=album)
 ## live in Russia, Astrakhan city
 ## telephone number: +7 964 880 00 08
 ### Telegram https://t.me/dimanalex1
